@@ -3,7 +3,7 @@
 # Hello! I'm Andrej! 
 Uhh I really like cats and I'm employed!
 
-Okay I mean I'm starting my job in the middle of 2027 but the contract is signed (or about to get signed next week..)
+Okay I mean I'm starting my job in the middle of 2027 but the contract is signed..
 
 Anyways uhh here are my skills:
 
