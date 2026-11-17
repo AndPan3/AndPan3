@@ -15,4 +15,6 @@ Linux (I use Arch btw)
 
 I have strong opinions over what Software I use. :/
 
-Anyways have fun on my profile.. (what are you doing this and why are you still reading this)
+Anyways have fun on my profile.. (what are you doing here and why are you still reading this)
+
+And yes; I use Arch btw
